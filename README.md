@@ -1,5 +1,5 @@
 👋👋👋 Hi 👋👋👋 I’m Yeongbeen. 
-Now on I’m working at Snaps where is photo printing company 
+Now on I’m working at Snaps where photo printing company 
 
 
 
